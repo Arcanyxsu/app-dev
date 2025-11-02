@@ -1,6 +1,6 @@
 # 🌟 My Favorite Show: *Gravity Falls*
 
-![Gravity Falls]
+[Gravity Falls]
 )
 
 ## 🌀 Overview
