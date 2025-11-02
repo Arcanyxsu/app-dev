@@ -1,6 +1,6 @@
 # 🌟 My Favorite Show: *Gravity Falls*
 
-![Gravity Falls](https://static.wikia.nocookie.net/gravityfalls/images/3/3a/Gravity_Falls_logo.png)
+![Gravity Falls]([https://static.wikia.nocookie.net/gravityfalls/images/3/3a/Gravity_Falls_logo.png](https://ph.images.search.yahoo.com/search/images;_ylt=Awrx.5WKWgdpMwIACi.zRwx.;_ylu=Y29sbwNzZzMEcG9zAzEEdnRpZAMEc2VjA3Nj?type=E210PH91215G0&p=wikipedia+gravity+falls&fr=mcafee&th=300&tw=225&imgurl=https%3A%2F%2Fph.images.search.yahoo.com%2Fsearch%2Fimages%3Fp%3Dwikipedia%2Bgravity%2Bfalls&rurl=https%3A%2F%2Fph.images.search.yahoo.com%2Fsearch%2Fimages%3Fp%3Dwikipedia%2Bgravity%2Bfalls&name=Gravity+Falls&h=1024&w=768&turl=https%3A%2F%2Fs.yimg.com%2Fzb%2Fimgv1%2F5db55c7c-6ca0-3c1b-9c40-cda76d197106%2Ft_500x300&tt=Gravity+Falls&sigr=DxCXeZAkhGmA&sigit=PAeujJjAXnS5&sigi=ASCotr0sGPHw&sign=x5Xq3Rryoca1&sigt=x5Xq3Rryoca1))
 )
 
 ## 🌀 Overview
