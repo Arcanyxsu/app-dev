@@ -1,6 +1,6 @@
 # 🌟 My Favorite Show: *Gravity Falls*
 
-![Gravity Falls Banner](https://upload.wikimedia.org/wikipedia/en/2/2c/Gravity_Falls_logo.png)
+![Gravity Falls]([https://upload.wikimedia.org/wikipedia/en/2/2c/Gravity_Falls_logo.png](https://en.wikipedia.org/wiki/File:Gravity_Falls_logo.png))
 
 ## 🌀 Overview
 **Gravity Falls** is a mystery-comedy animated series created by *Alex Hirsch*.  
